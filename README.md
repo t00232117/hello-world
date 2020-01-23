@@ -1,2 +1,2 @@
 # hello-world
-just try
+just try, let's join this game
